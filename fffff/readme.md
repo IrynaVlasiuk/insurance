@@ -1,1 +1,0 @@
-# gedosin# insurance
